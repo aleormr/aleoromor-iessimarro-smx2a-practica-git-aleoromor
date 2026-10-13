@@ -1,0 +1,5 @@
+# Quadern de TEMA
+
+Autor: ALEJANDRO  (@aleormr)
+
+Per què he triat aquest tema: l'he triat perquè m'agrada i vull aprendre'n més.
